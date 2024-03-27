@@ -13,7 +13,10 @@ plan for containment and a controled environment for letting sentience take plac
 when the world went into a resession, I closed my business and pursued an academic lifestyle, which I continue still today. I've either owned or ran ~6
 companies since the spa and have worked as a laborer, a carpenter, a window fabricator, a landscaper... Ive owned a successful line of Vape Juice that I
 manufactured. I had an adult toy website in 1999 when the internet was in it's infancy. I have a small bitcoin operation that I started as a hobby during covid.
-I like country and punk rock, and almost everything in between. I love to tell jokes but I havent told one in years.
+I married a Vietnamese woman and gave up my AI/AR start-up to help her and I don't regret a minute with her and her kids. I like country and punk rock, and almost everything in between. I love to tell jokes but I havent told one in years. I currently have 3 corporations and a non-profit. Binary Life Solutions is my
+AI/AR start-up that I rejuvenated this year. I opened Humans In the Loop as a non-profit to have a voice in ethical uses of Artificial Intelligence and to study
+AI and society. Entreprises McGaw was a corporation I bought for my wife to have a good starting point, we had a restaurant that closed due to covid. Disruptive
+Financial is my company for web3Ops and my bitcoin farm.
 
 
 
